@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Shivam dhakad
-**A passionate Software Engineer **
+**A passionate Software Engineer 😊  ||**
 
 Email Me 👉 ✉️ **shivamdhakad324@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
